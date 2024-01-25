@@ -1,7 +1,7 @@
 # Ingredients
  - Peas (£0.80 at Tesco)
  - Spring onions (sainsburys)
- - Potato
+ - Potato (local farmer)
  - Salt
 
 # Instructions
